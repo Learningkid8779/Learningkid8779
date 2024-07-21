@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Learningkid8779
+  - What tha sigma?
